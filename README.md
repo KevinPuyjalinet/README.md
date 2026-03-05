@@ -55,4 +55,13 @@ More projects available in my repositories 👇
 
 ---
 
+## ⚡ Fun Facts
+
+- 🚀 Space enthusiast
+- 🍎 Apple ecosystem lover
+- 🎧 Music + coding = perfect combo
+- 🧠 Always curious about how things work
+
+---
+
 ⭐️ Sic Parvis Magna.
