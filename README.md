@@ -55,10 +55,4 @@ More projects available in my repositories 👇
 
 ---
 
-## 🌍 Find me here
-
-- GitHub: https://github.com/DevWithKev
-
----
-
-⭐️ Always learning, always building.
+⭐️ Sic Parvis Magna.
